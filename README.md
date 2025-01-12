@@ -1,6 +1,6 @@
-- i am totally a dying hynix eMMC chip.
+- i am totally a dying hynix eMMC chip 100% real yeah.
 - im interested in a lotta nintendo consoles, especially the 3ds and wii u
-- i am learning python, some slight bit of lua
+- i am learning c++!!!!!
 - half-ass proficient in c#
 - professional virtual ape
 - meow meow meow meow meow
