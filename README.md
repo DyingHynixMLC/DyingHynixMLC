@@ -4,3 +4,4 @@
 - half-ass proficient in c#
 - professional virtual ape
 - meow meow meow meow meow
+- native chromebookian
