@@ -1,5 +1,4 @@
-- i am totally a dying hynix eMMC chip 100% real yeah.
-- im interested in a lotta nintendo consoles, especially the 3ds and wii u
+- retard
 - i am learning c++!!!!!
 - half-ass proficient in c#
 - professional virtual ape
